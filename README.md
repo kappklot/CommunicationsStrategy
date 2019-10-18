@@ -1,4 +1,4 @@
-# CommunicationsStrategy
+# Communications Strategy
 Absorption + Narrative Shift Worksheets 
 
 Absorption Goal: How do we bring people into our work.
